@@ -1,1 +1,2 @@
 # usesomeday
+This is going to be an open-source collection of resources and directions to help anyone looking for work to get one fast. I'll be working on the structure over the course of the year 2025. The goal is to make it an healthy environment — think of it as though it's an infinite garden — with everything you could possibly need, regardless of your situation or level of experience, to move you to where you really want to be! That's what it's all going to be about. Stay tuned!☮️
